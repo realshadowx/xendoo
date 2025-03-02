@@ -2,7 +2,7 @@
 
 Are you looking for a smart way to save on Xendoo's accounting and bookkeeping services? Look no further! Whether you're a small business owner or a freelancer, Xendoo offers reliable and affordable financial solutions that can streamline your accounting process.
 
-You can get great discounts on their services with the latest Xendoo discount codes.
+You can get great discounts on their services with the latest [Xendoo discount codes](https://www.xendoo.com/?fp_ref=shadow).
 
 ![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd81aKEp_miaF5UjM62xWjpYAB_tdY4Xz8buJSjnNKlg0Ud2PFPdF3O6iGAr6wyokIRZd62FSkjFsiH5Mn22G8StCtWDh3c43DJ3d6319HYaDPuBc2xE-sErWwl4rWM7CeMtiV79w?key=ba4fiDaKIeXCGy8PPcUGRU8E)
 
